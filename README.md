@@ -25,6 +25,7 @@
 |:---:|:---:|:---:|
 | [![@i快搜](https://i.imgur.com/CsCtOBH.png)<br>@i快搜](https://t.me/ikuaisobot?start=6294881820) | [![@极搜JiSou](https://i.imgur.com/1VoAGvh.png)<br>@极搜JiSou](https://t.me/jisou2bot?start=a_6294881820) |[![@AISO](https://i.imgur.com/KuVfi0u.png)<br>@AISO](https://t.me/aiso?start=telegram_6294881820)|
 | [![搜片神器](https://i.imgur.com/SVox0Se.png)<br>搜片神器](https://t.me/soupianccav)  |  [![色色搜索](https://i.imgur.com/pwNAjvK.png)<br>❤️色色搜索🔞](https://t.me/sesouccav) | [![黑料搜索](https://i.imgur.com/pSRMtxh.png)<br>黑料搜索](https://t.me/hlsoso)|
+| [![中文搜索①](https://i.imgur.com/OWV7rdZ.png)<br>中文搜索①](https://t.me/sousou20w)  |  [![中文搜索②](https://i.imgur.com/xn0EiEy.png)<br>中文搜索②](https://t.me/qnssking) | [![中文搜索③](https://i.imgur.com/NakYFVi.png)<br>中文搜索③](https://t.me/jisou20w)|
 
 
 
@@ -58,10 +59,6 @@
 *   Telegram 🔞18️+🔥NSFW:[https://t.me/se200000](https://t.me/se200000)
 *   Telegram 🥷暗网搜索🔍:[https://t.me/anwang007](https://t.me/anwang007)
 *   Telegram 🔥搜片神器🎥:[https://t.me/soupianccav](https://t.me/soupianccav)
-*   Telegram 🔥网盘资源🔥电影🔥视频:[https://t.me/sousou200000](https://t.me/sousou200000)
-*   Telegram 🔥20万人Telegram中文社群:[https://t.me/tgcnchat](https://t.me/tgcnchat)
-*   Telegram 🔥20万人搜搜群:[https://t.me/sousou200000](https://t.me/sousou200000)
-*   Telegram 🔥20万人极搜群:[https://t.me/jisou200000](https://t.me/jisou200000)
 *   Telegram 🔥黑料搜索群🔥:[https://t.me/hlsoso](https://t.me/hlsoso)
 *   🔥 赏颜阁 🔥全网最漂亮的妹子聚集地 :[https://t.me/dysyg](https://t.me/dysyg)
 *   💰 撸空投 💰财务自由之路 :[https://t.me/tglukongtou](https://t.me/tglukongtou)
